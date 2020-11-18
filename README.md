@@ -1,1 +1,1 @@
-# Game7
+https://onlyarchana.github.io/VirtualPet/.
